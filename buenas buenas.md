@@ -1,0 +1,1 @@
+tiro tiro mato a mi enemigo no me giro pero miro por la mira me persigue no me para ni un vampiro yo me quedo sin mi piro digo lo que pienso pero nunca me retiro primo
