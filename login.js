@@ -1,1 +1,1 @@
-JavaScript es el lenguaje más utilizado enla Web.
+JavaScript es el lenguaje más utilizado en la Web.
